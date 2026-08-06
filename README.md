@@ -15,3 +15,8 @@
 <img width="518" height="164" alt="Image" src="https://github.com/user-attachments/assets/834b0fad-e373-40ce-ad34-ade907108c6b" />
 
 [ponytown-nominations](https://github.com/ponytown-nominations) :3
+
+<img width="529" height="66" alt="Image" src="https://github.com/user-attachments/assets/a05e7bc4-c290-4b43-85c9-9189f1ab873c" />
+
+[ponychievements](https://github.com/ponychievements) :D
+
