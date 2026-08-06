@@ -20,3 +20,5 @@
 
 [ponychievements](https://github.com/ponychievements) :D
 
+<img width="2000" height="1650" alt="Image" src="https://github.com/user-attachments/assets/d75cd40c-8953-4b33-b24d-4152b1b09058" />
+
