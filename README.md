@@ -19,3 +19,8 @@
 <img width="529" height="66" alt="Image" src="https://github.com/user-attachments/assets/a05e7bc4-c290-4b43-85c9-9189f1ab873c" />
 
 [ponychievements](https://github.com/ponychievements) :D
+
+<img width="519" height="166" alt="Image" src="https://github.com/user-attachments/assets/4ad6d45b-6853-4714-9177-54347b7a78e1" />
+
+[charactersofpt](https://github.com/charactersofpt) <D
+
