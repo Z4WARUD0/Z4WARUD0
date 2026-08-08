@@ -10,6 +10,6 @@
 
 THANK YOU !
 
-[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/@pt-friendships)
 
 
