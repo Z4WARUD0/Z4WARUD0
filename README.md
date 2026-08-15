@@ -8,7 +8,7 @@
 
 $\color{E2AE66}{\textsf{ꪻꫝꪖꪀᛕ ꪗꪮꪊᝰ.ᐟ}}$
  
-[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/@pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers)[@ponytown-yumes](https://github.com/ponytown-yumes)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/@pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=313acd3to2gk3hhsf7ixksccj7cm&redirect=true">
