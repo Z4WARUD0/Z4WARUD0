@@ -1,5 +1,5 @@
 <div align="center">
-
+<img width="350" height="7" alt="Image" src="https://github.com/user-attachments/assets/70a846ed-0b18-44a8-939f-d8e0d3c22946" />
 <img width="360" height="360" alt="Image" src="https://github.com/user-attachments/assets/3e49207d-0781-45b3-b304-48d24dbe09d1" />
 
 $\color{RED}{\textsf{PARTY}}$  $\color{green}{\textsf{PARTY}}$  !1!
