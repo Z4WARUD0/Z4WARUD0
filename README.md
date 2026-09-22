@@ -1,13 +1,13 @@
 <div align="center">
 
-  <img width="474" height="474" alt="Image" src="https://github.com/user-attachments/assets/328680bf-0a13-4df8-a84e-a6cb203fb776" />
+<img width="360" height="360" alt="Image" src="https://github.com/user-attachments/assets/3e49207d-0781-45b3-b304-48d24dbe09d1" />
 
-$\color{RED}{\textsf{RED}}$ AND $\color{BLUE}{\textsf{BLUE}}$ NO.1 FAN !1!
+$\color{RED}{\textsf{PARTY}}$  $\color{green}{\textsf{PARTY}}$  !1!
 
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/24bffd5a-d93b-42af-b0d7-00d3897b2d3e" /> [𝒮𝓉𝓇𝒶𝓌](https://the-batman-lego-movie.straw.page/)$\color{BLUE}{\textsf{𝒫𝒶𝑔𝑒}}$ .✦ ݁˖ [𝒜𝓉𝒶](https://greatestplan.atabook.org/)$\color{RED}{\textsf{𝐵𝑜𝑜𝓀}}$ ˚˖𓍢ִ໋❀ [𝒫𝓇𝑜](https://en.pronouns.page/@Kutaro)$\color{BLUE}{\textsf{𝓃𝑜𝓊𝓃𝓈}}$  
-★[𝑅𝑒](https://rentry.co/partytim3)$\color{RED}{\textsf{𝐸𝓃𝓉𝓇𝓎}}$ ⋆˙⟡ [𝒟𝒶𝒾𝓁𝓎](https://arab.org/click-to-help/palestine/)$\color{BLUE}{\textsf{𝒸𝓁𝒾𝒸𝓀}}$ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7e8c01d5-01f4-47eb-8831-7c437fa82697" />
+<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/24bffd5a-d93b-42af-b0d7-00d3897b2d3e" /> [𝒮𝓉𝓇𝒶𝓌](https://the-batman-lego-movie.straw.page/)$\color{green}{\textsf{𝒫𝒶𝑔𝑒}}$ .✦ ݁˖ [𝒜𝓉𝒶](https://greatestplan.atabook.org/)$\color{RED}{\textsf{𝐵𝑜𝑜𝓀}}$ ˚˖𓍢ִ໋❀ [𝒫𝓇𝑜](https://en.pronouns.page/@Kutaro)$\color{Yellow}{\textsf{𝓃𝑜𝓊𝓃𝓈}}$  
+★[𝑅𝑒](https://rentry.co/partytim3)$\color{purple}{\textsf{𝐸𝓃𝓉𝓇𝓎}}$ ⋆˙⟡ [𝒟𝒶𝒾𝓁𝓎](https://arab.org/click-to-help/palestine/)$\color{Blue}{\textsf{𝒸𝓁𝒾𝒸𝓀}}$ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7e8c01d5-01f4-47eb-8831-7c437fa82697" />
 
-$\color{RED}{\textsf{THANK}}$ $\color{BLUE}{\textsf{YOU}}$ !!!!!! :D
+$\color{gree}{\textsf{THANK}}$ $\color{yellow}{\textsf{YOU}}$ !!!!!! :D
 
 [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/@pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
 [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
