@@ -17,7 +17,15 @@
 <img width="99" height="56" alt="tumblr_6862599c4d7ea79e223e2e844d5722d1_fae3a448_100" src="https://github.com/user-attachments/assets/2f65310c-6cd1-47d6-8170-d9e4207c6582" />
 <img width="99" height="55" alt="tumblr_ec7f20be49a2934f0a1234ef8a98c27c_4546ee4a_100" src="https://github.com/user-attachments/assets/565a289b-027b-411c-ab98-e2d97565a382" />
 
- ${\color{purple}\text{hi}}$ 
+ ${\color{purple}\text{hi! :D Am Sakura or spawn or anything else i dont mind. Also love to be called Elizabeth.}}$ 
+
+${\color{purple}\text{ask for ask for social if u want anythin'}}$ 
+
+${\color{purple}\text{i dont mind any Pronouns but am she/her}}$ 
+
+${\color{purple}\text{English is NOT by mother/first language, ok? i suck.}}$ 
+
+${\color{purple}\text{More about me in Rentry}}$
 
 <img width="150" height="20" alt="tumblr_67924b4bfb2d926a9a75c96fd4938eb2_7a796eb6_250" src="https://github.com/user-attachments/assets/1291febb-735b-4f85-bf1b-4976167fbc83" />
 <img width="150" height="20" alt="tumblr_5206657ab79f628b0bd77d1981d6f52c_01afeb2c_250" src="https://github.com/user-attachments/assets/6b03e844-9a7e-4d07-bac2-9aae4140c561" />
