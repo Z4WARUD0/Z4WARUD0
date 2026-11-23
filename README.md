@@ -27,9 +27,24 @@ ${\color{purple}\text{English is NOT by mother/first language, ok? i suck.}}$
 
 ${\color{purple}\text{More about me in Rentry}}$
 
+<p align="right">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=313acd3to2gk3hhsf7ixksccj7cm&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313acd3to2gk3hhsf7ixksccj7cm&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=true" alt="Spotify Profile" />
+  </a>
+</p>
+
+  
+
 <img width="150" height="20" alt="tumblr_67924b4bfb2d926a9a75c96fd4938eb2_7a796eb6_250" src="https://github.com/user-attachments/assets/1291febb-735b-4f85-bf1b-4976167fbc83" />
 <img width="150" height="20" alt="tumblr_5206657ab79f628b0bd77d1981d6f52c_01afeb2c_250" src="https://github.com/user-attachments/assets/6b03e844-9a7e-4d07-bac2-9aae4140c561" />
 <img width="150" height="20" alt="tumblr_c3e0028f483efdb9815425a4e7abfb0c_0422b033_250" src="https://github.com/user-attachments/assets/82123025-3792-4c8e-83b0-fa3dc402819f" />
 <img width="150" height="20" alt="tumblr_e47e86a5f8ad79f45b34b4f6bcceafac_5e0aa7e5_250" src="https://github.com/user-attachments/assets/89a4d4a0-e60a-4b28-82ba-434f54dcc6df" />
+<details>
+<summary>$\color{#8A2BE2}{\textsf{\textbf{Awards}}}$ </summary>
 
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt)[@pt-friendships](https://github.com/@pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
+
+
+</details>
 <img width="1271" height="81" alt="tumblr_0c74ed86ca480df7686453ba628a0107_7bb9dd0d_1280" src="https://github.com/user-attachments/assets/ea9de33c-4b4e-4ead-90ef-7c74ff2945d6" />
