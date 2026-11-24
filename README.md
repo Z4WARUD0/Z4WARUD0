@@ -43,7 +43,7 @@ ${\color{purple}\text{More about me in Rentry}}$
 <summary>$\color{#8A2BE2}{\textsf{\textbf{Awards}}}$ </summary>
 
 [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt)[@pt-friendships](https://github.com/@pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
-[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown)
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) [@ponytown-nominations](https://github.com/ponytown-nominations) [@ponychievements](https://github.com/ponychievements) [@charactersofpt](https://github.com/charactersofpt) [@FOLKTOWN](https://github.com/FOLKTOWN) [@pt-friendships](https://github.com/pt-friendships) [@ponytownyumeshippers](https://github.com/ponytownyumeshippers) [@ponytown-yumes](https://github.com/ponytown-yumes) [@cosplaytown](https://github.com/cosplaytown) [@pt-everypony](https://github.com/pt-everypony)
 
 
 </details>
